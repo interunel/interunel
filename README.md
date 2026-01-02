@@ -7,6 +7,7 @@
 
 <div id="header" align="center">
   <img src="https://files.catbox.moe/hshamm.png" width="1000"/>
-</div> <div id="header" align="center">
+</div>
+<div id="header" align="center">
   <img src="https://files.catbox.moe/djxm2k.png" width="1000"/>
 </div>
