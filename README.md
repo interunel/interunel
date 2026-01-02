@@ -26,7 +26,7 @@ All My Socials Are These, Make Sure To Follow Me And Support My Content! Anythin
   <img src="https://files.catbox.moe/djxm2k.png" width="1000"/>
 </div>
 
-[<img alt="alt_text" width="80px" src="https://files.catbox.moe/p8od9b.png" />](‎https://whatsapp.com/channel/0029VaLSm2L1yT21VXxBdY2F)
+[<img alt="alt_text" width="80px" src="https://files.catbox.moe/p8od9b.png" />](https://whatsapp.com/channel/0029VaLSm2L1yT21VXxBdY2F)
 
 Heads Up:
 My WhatsApp Channel Is Mostly Like Indo, There Will Be Stuff In English Yes But The Things There Are Mostly Indonesian. However Feel Free To Follow It As I Do Alot Of Stuff There!
